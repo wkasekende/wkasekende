@@ -1,6 +1,6 @@
-Welcome to my GitHub profile
+Welcome to my GitHub profile ✌🏾
 
-I'm a designer turned developer based in London currently working on [Command Stick](https://commandstick.com).
+I'm a designer turned developer based in London currently working on [Command Stick](https://commandstick.com) ⚫.
 <br>
 
 *My dream is to create a world without bad design.* 
